@@ -1,0 +1,10 @@
+---
+{"dg-publish":true,"permalink":"/illnesses/mycelineum/"}
+---
+
+_________
+*The more observant might notice a strain of fungus growing in the west around [[Cordilleras\|Cordilleras]] in their time outside. The observant and curious may have tried to eat this potential delicacy, thus being exposed to its cloying and unpalatable taste. The observant, curious and persistent might push past its culinary weakness to be exposed to its at first pleasant hallucinogenic properties, and the ensuing persistent need to continue its consumption. This may carry on to far more unpleasant symptoms that people first mistake for [[Illnesses/Saphenia\|Saphenia]]. Unbeknownst to them are the oncoming and irreversible alterations and the roots growing beneath their feet.*
+
+*A hardier will can resist the urge to gorge themselves into delirium, and finds they make sense of the symptoms in a manner that can be resisted to an extent. The exposure to a unilateral mind made of disembodied fungus is a jumble of sensation, the itching unpleasant, the overtaking of growths on their body difficult to conceal. But more tangible is the voice that hisses in their ear- sometimes in aid, sometimes just to be heard. All the time offering greater boons if they sink just a little deeper. A little stronger than the new augments that already empower them. All it takes is one more deal. But you know that this voice hungers for something you don’t, and that you know not its ends? Some deals aren’t worth making. But soon the allure will be too much.
+Practically overgrown, their weak will is often cast aside for unquestioning obedience to not merely the voice, but the whims and thoughts of another coalesced self. Though it promises well, half of a waking life being piloted by a psyche that could only be so massive as to be divine is horrifying. But one can only watch and hope, and make well of the deific powers your time has to take advantage of.
+______________________
