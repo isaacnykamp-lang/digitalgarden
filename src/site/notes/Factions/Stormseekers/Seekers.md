@@ -25,7 +25,7 @@ The general exception is [[Locations/Pharus\|Pharus]]'s [[Factions/Stormseekers/
   
 ______
 
-***The Guild’s early history was tumultuous. Foreseeing the coming need for an antiquated means of navigation, they are responsible for the durable [[waystones\|waystones]] that pockmark the winding paths of the valleys below. Their archive halls are littered with woodcut and bas-reliefs of primordial Seekers, and the original [[Interlopers/Storm Shepherd\|Storm Shepherd]].
+***The Guild’s early history was tumultuous. Foreseeing the coming need for an antiquated means of navigation, they are responsible for the durable [[waystones\|waystones]] that pockmark the winding paths of the valleys below. Their archive halls are littered with woodcut and bas-reliefs of primordial Seekers, and the original [[Myths/Storm Shepherd\|Storm Shepherd]].
 Typically, [[waystones\|waystones]] would bear the sigil of the [[Factions/Stormseekers/Seeker's Guild\|Seeker's Guild]], the [[Sigils/Solitary Bolt\|Solitary Bolt]] However, major highways would be dotted with stones engraved with a winding serpent. Some worship the [[Gods/Roko\|Roko]] as a forlorn god, unknown to them is the origin of the symbol. A Ozymandian figure, the Basilisk was the face of a technocratic megaconglomerate responsible for great feats of progress in the latter days of [[Timeline/Departure\|Departure]] 
 
 ***Roko industries strong-armed their way into the early days of the Guild to tarnish their mission statement, mostly out of pure derision.
